@@ -47,6 +47,6 @@ I'm Chau Chung Lai ,Matthew.
 
 ![gif](https://github.com/cclmt0129/pjm2/blob/master/biBf0tk.gif)
 
-
+![image](https://github.com/csci3250-2019/student-1155110464/blob/master/GIT.png)
 "# student-1155110464" 
 "# student-1155110464" 
